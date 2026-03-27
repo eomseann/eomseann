@@ -4,6 +4,7 @@
 I LOV MY SILLY GIRL NEI SMM
 </p>
 ᛝ call me huy.
+
 ᛝ only talk and feel comfortable w people i know. 
 
 ᛝ uncomfortable around strangers, so i dont talk much. 
