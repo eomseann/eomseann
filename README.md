@@ -1,4 +1,4 @@
-―  <p align="center">
+ <p align="center">
   <a href="https://menti0n.straw.page">strawpage</a>  ― 
   <a href="https://brookeartzz.atabook.org/">atabook</a>
 
