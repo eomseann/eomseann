@@ -2,4 +2,4 @@
   <a href="https://wonhette.straw.page"> — strawpage</a>  
   <a href="https://brookeartzz.atabook.org/">atabook — </a>
 
-![img](https://i.pinimg.com/736x/15/d8/0f/15d80f3d8edfdfff38af75d11c66e102.jpg)
+![img](https://i.pinimg.com/originals/9d/36/04/9d3604055746023c50ec186357c218f1.gif)
